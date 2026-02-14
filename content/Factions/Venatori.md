@@ -1,0 +1,1 @@
+Originally founded by [[The Archive]] and [[Lord Raith]] to fight against the monsters that threatened humanity. 
