@@ -1,6 +1,8 @@
 ---
-title: Welcome to Quartz
+title: American Arcana
+tags:
+  - index
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+This wiki is powered by Quartz.
+See the [documentation](https://quartz.jzhao.xyz) for more.
