@@ -1,0 +1,1 @@
+Kemmler is an old necromancer who was causing troubles in Europe during the World Wars, has died multiple times and somehow comes back, and took on the entire [[White Council]] and nearly won. Attempted the [[Darkhallow]] and failed.

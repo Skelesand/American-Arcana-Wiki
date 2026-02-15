@@ -1,0 +1,1 @@
+The Red Court Vampires are these bat demon looking things that can paralyze you if they lick you.

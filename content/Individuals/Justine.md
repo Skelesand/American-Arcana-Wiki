@@ -1,0 +1,1 @@
+An extremely creative and nearly bottomless well of psychic energy woman who is [[Thomas Raith]]'s girlfriend.
